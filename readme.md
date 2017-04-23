@@ -3,4 +3,4 @@
 Esta serie de libros cuentan la historia de un hacker único
 
 
-**Manuel Colmenero**
+**Manuel Colmenero**, Larry Plotter fan.
